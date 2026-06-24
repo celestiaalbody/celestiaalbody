@@ -9,7 +9,7 @@ intp 5w4 so5 594
  
 for more information ok
 
-[strawpage](https://nepxx.straw.page/) [pronouns.cc](https://pronouns.cc/@nightsky)
+[strawpage](https://nepxx.straw.page/) [pronouns.cc](https://pronouns.cc/@terrestrialrocks)
 
 
 
